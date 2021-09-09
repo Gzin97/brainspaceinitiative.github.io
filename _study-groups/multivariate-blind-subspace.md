@@ -10,7 +10,7 @@ A (sub)space to discuss and learn about the relationships among classical & nove
 
 
 #### List of Resources
-[Coming soon]
+[Coming very soon]
 
 <!-- #### Journal Club Info 
 [Coming soon] -->
